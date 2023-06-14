@@ -1,6 +1,6 @@
 Hello!
 
-This is my repository. You can download me here or something.
-This is me! Yep! Thats me!
-
-im just going to upload things here I want to save I guess.
+I am bam4000.
+My name is bam4000.
+Sometimes I try to code but fail miserably.
+Anyway, SSoverlays when?
