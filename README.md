@@ -1,5 +1,13 @@
 Hello!
 
 My name is Bam4000.
-I'm writing stuff in c#. c and whatever else there is honestly. I just learn whatever I feel like at the moment
+Scorcher so good. I'm shackled by BYOND. Microsoft java (c#) is also something I can do.
 
+All self taught. I am a genius you see. 
+
+
+
+
+
+
+Watchu burnt gurl?
